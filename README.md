@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Emitok
+- 👋 Hi, I’m @KingNFT
 - 👀 I’m interested in Airdrop and general crypto trading 
 - 🌱 I’m currently learning AI and crpto data analytics 
 - 💞️ I’m looking to collaborate on Crpto projects and foreign exchange 
