@@ -2,7 +2,7 @@
 - 👀 I’m interested in Airdrop and general crypto trading 
 - 🌱 I’m currently learning AI and crpto data analytics 
 - 💞️ I’m looking to collaborate on Crpto projects and foreign exchange 
-- 📫 How to reach me Twitter: @KingNFT100 Discord: @NFTHead #3291
+- 📫 How to reach me Twitter: @KingNFT_real Discord: @NFTHead #3291
 
 <!---
 Emitok/Emitok is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
